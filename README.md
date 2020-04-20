@@ -1,2 +1,0 @@
-# GOC
-Glory of communism
